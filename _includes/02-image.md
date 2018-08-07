@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjb8reK1NvcAhWyPH0KHWRXBUYQjRx6BAgBEAU&url=https%3A%2F%2Fwww.symbols.com%2Fsymbol%2Funicursal-hexagram&psig=AOvVaw2gdKUtelKR5WXHNEFtAZtS&ust=1533755880243420
